@@ -7,8 +7,8 @@ Click on the skin name to download.
 # [404 SkinNotFound v2](https://dl.dropboxusercontent.com/s/km1sjnnigsrvkos/-%20%23%20Hikonya.osk)
 ![](https://lucario.s-ul.eu/8rwWxbUR)
 
-# [Enslada(Mathi Skin)](https://dl.dropboxusercontent.com/s/f174q475g8pa0q6/-%20%23%20Enslada%28Mathi%20Skin%29.osk)
-![](https://i.imgur.com/KFVtxrB.jpg)
+# [Vyaches Huyaches](https://dl.dropboxusercontent.com/s/f174q475g8pa0q6/-%20%23%20Enslada%28Mathi%20Skin%29.osk)
+![](https://lucario.s-ul.eu/jW5Yhn95)
 
 # [Enslada(Sometimes909 edit)](https://dl.dropboxusercontent.com/s/oa75wwmmw7x64g3/-%20%23%20Enslada%20%28Sometimes909%20edit%29.osk)
 ![](https://i.imgur.com/IHf9lzS.jpg)
