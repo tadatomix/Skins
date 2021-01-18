@@ -1,13 +1,13 @@
 Click on the skin name to download.
 # Все скины которые я когда либо использовал.
 
-# [Is that a Millhiore skin right now](https://drive.google.com/file/d/1KR0rJLqpRkAdDGrV1Q3iKYJ_WBcAfOaF/view?usp=drivesdk) 
+# [Is that a Millhiore skin right now](https://lucario.s-ul.eu/lNJfzUic) 
 ![](https://lucario.s-ul.eu/fPGrSGVa) 
 
-# [404 SkinNotFound v2](https://dl.dropboxusercontent.com/s/km1sjnnigsrvkos/-%20%23%20Hikonya.osk)
+# [404 SkinNotFound v2](https://download1821.mediafire.com/blr06akixkng/txcdf573m5jr8ru/404+SkinNotFound+v2.osk)
 ![](https://lucario.s-ul.eu/8rwWxbUR)
 
-# [Vyaches Huyaches](https://dl.dropboxusercontent.com/s/f174q475g8pa0q6/-%20%23%20Enslada%28Mathi%20Skin%29.osk)
+# [Vyaches Huyaches](https://lucario.s-ul.eu/qknrz4uT)
 ![](https://lucario.s-ul.eu/jW5Yhn95)
 
 # [FunOrange (De4n Edited)](https://lucario.s-ul.eu/vZG3ZAcu)
