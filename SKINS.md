@@ -2,7 +2,7 @@ Click on the skin name to download.
 # Все скины которые я когда либо использовал.
 
 # [Is that a Millhiore skin right now](https://drive.google.com/file/d/1KR0rJLqpRkAdDGrV1Q3iKYJ_WBcAfOaF/view?usp=drivesdk) 
-![](https://i.imgur.com/2SLQLny.jpg) 
+![](https://lucario.s-ul.eu/fPGrSGVa) 
 
 # [Hikonya](https://dl.dropboxusercontent.com/s/km1sjnnigsrvkos/-%20%23%20Hikonya.osk)
 ![](https://i.imgur.com/Yex5OZG.jpg)
