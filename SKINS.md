@@ -5,7 +5,7 @@ Click on the skin name to download.
 ![](https://i.imgur.com/wWgL4zT.png) 
 
 # [404 SkinNotFound v2](https://download1821.mediafire.com/blr06akixkng/txcdf573m5jr8ru/404+SkinNotFound+v2.osk)
-![](https://lucario.s-ul.eu/8rwWxbUR)
+![](https://i.imgur.com/Tll354q.png)
 
 # [Vyaches Huyaches](https://lucario.s-ul.eu/qknrz4uT)
 ![](https://lucario.s-ul.eu/jW5Yhn95)
