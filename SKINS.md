@@ -8,7 +8,7 @@ Click on the skin name to download.
 ![](https://i.imgur.com/Tll354q.png)
 
 # [Vyaches Huyaches](https://lucario.s-ul.eu/qknrz4uT)
-![](https://lucario.s-ul.eu/jW5Yhn95)
+![](https://i.imgur.com/odc3D3B.png)
 
-# [FunOrange (De4n Edited)](https://lucario.s-ul.eu/vZG3ZAcu)
-![](https://www.mediafire.com/file/p8e7w6z1f3gxxu6/FunOrange.osk/file)
+# [FunOrange (De4n Edited)](https://www.mediafire.com/file/p8e7w6z1f3gxxu6/FunOrange.osk/file)
+![](https://i.imgur.com/YITYfYm.png)
