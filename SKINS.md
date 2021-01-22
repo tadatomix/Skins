@@ -2,7 +2,7 @@ Click on the skin name to download.
 # Все скины которые я когда либо использовал.
 
 # [Is that a Millhiore skin right now](https://www.mediafire.com/file/p8e7w6z1f3gxxu6/FunOrange.osk/file) 
-![](https://lucario.s-ul.eu/fPGrSGVa) 
+![](https://i.imgur.com/wWgL4zT.png) 
 
 # [404 SkinNotFound v2](https://download1821.mediafire.com/blr06akixkng/txcdf573m5jr8ru/404+SkinNotFound+v2.osk)
 ![](https://lucario.s-ul.eu/8rwWxbUR)
